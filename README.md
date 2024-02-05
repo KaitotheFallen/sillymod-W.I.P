@@ -1,2 +1,2 @@
 # sillymod-W.I.P
-it's gonna be pretty funny when my friend finds out what this contains
+if it doesnt work, oh well. i cant beta test it at the moment because i dont have a pc or laptop to test the download with (im lazy)
